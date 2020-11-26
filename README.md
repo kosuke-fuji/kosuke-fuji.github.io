@@ -1,0 +1,1 @@
+# kosuke-fuji.github.io
